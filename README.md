@@ -13,4 +13,7 @@ My favourite animals:
 2. Pandas
 3. Parrots
 
+*Link* to **goofy** website: [Goofy](https://heeeeeeeey.com/)
+
+
 A meme that captures how I currently feel about my university studies is ![](https://c.tenor.com/rrM6RirCLzIAAAAd/tenor.gif)
